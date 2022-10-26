@@ -1,3 +1,0 @@
-# GUIDANCE
-
-## Semua Tentang Panduan
